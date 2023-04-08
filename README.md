@@ -1,2 +1,2 @@
 # -
-I‘m form china ，and just a Rookie
+I‘m  a Rookie
